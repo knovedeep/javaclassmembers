@@ -7,3 +7,7 @@ The instructor's name is Scott Dossey
 ## Students
 
 * Test student 1
+
+*JOEL CRANDALL
+
+NEW EDIT NEWNEW
